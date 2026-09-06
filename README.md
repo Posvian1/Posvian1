@@ -28,4 +28,4 @@
 ## 🔗 Связь со мной
 
 *   **Telegram:** [@D1mkaEr](https://t.me/D1mkaEr)
-*   **Email:** eremeevdiam367@gmail.com
+*   **Email:** eremeevdima367@gmail.com
